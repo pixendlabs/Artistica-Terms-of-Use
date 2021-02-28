@@ -1,4 +1,4 @@
-# **Artistica - Photo Art Filter** TERMS OF USE
+# **Artistica - Photo Art Filter** TERMS OF SERVICE
 
 Last Updated: 28 Feb 2021
 
